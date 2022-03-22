@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Amer Alfaqeeh
 - 👀 I’m interested in football
 - 🌱 I’m currently learning AI
-- 💞️ I'm looking to collaborate with My Best friend Mana
+- 💞️ I'm looking to collaborate with My Best friend Manal
 - 📫 How to reach me alfaqeeh.amer@hotmail.com
 - alfaqeeh.amer86@gmail.com
 - Mobile +966-53-934-8891
